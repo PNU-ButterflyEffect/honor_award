@@ -1,1 +1,1 @@
-# honor_award
+1. chungbuk ict convergence hackerthon - participation award
